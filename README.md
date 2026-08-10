@@ -12,4 +12,4 @@ This portfolio showcases my previous projects and assignments.
 
 ## Contact
 
-Email: your-email@example.com
+laptopnurhikmah2605@gmail.com
